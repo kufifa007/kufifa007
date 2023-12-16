@@ -1,6 +1,14 @@
 ### Hi there 👋
 
-hello welcome have
+My Name
+Sanpitch Phuvapaisankit
+Nick Name
+Fifa
+
+BCC168 
+KU81 IT
+
+My code is 99.99% is chat gpt thankyou
 
 <!--
 **kufifa007/kufifa007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
