@@ -11,3 +11,6 @@ KU81 IT
 My code is 99.99% is chat gpt thankyou 
 
 กำลังสร้างมองข้ามไปก่อน เดี๋ยวจะมาละไปหนู
+
+
+[Link Text](https://www.facebook.com/fifa.rock.90)
