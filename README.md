@@ -12,5 +12,6 @@ My code is 99.99% is chat gpt thankyou
 
 กำลังสร้างมองข้ามไปก่อน เดี๋ยวจะมาละไปหนู
 
-
-[Link Text](https://www.facebook.com/fifa.rock.90)
+Contact 
+[Link Facebook](https://www.facebook.com/fifa.rock.90)
+[Link Ig](https://www.instagram.com/mooyoungbongkancha/?hl=id)
