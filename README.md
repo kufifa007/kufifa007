@@ -13,7 +13,7 @@ My code is 99.99% is chat gpt thankyou
 
 ### กำลังสร้างมองข้ามไปก่อน เดี๋ยวจะมาละไปหนู
 
-Contact 
+𝖈𝖔𝖓𝖙𝖆𝖈𝖙
 
 [Link Facebook](https://www.facebook.com/fifa.rock.90)
 
